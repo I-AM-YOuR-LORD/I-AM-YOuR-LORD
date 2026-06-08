@@ -1,1 +1,3 @@
-WORKING ON IT. DON'T RuSH ME!!
+<p align="center">
+WORKING ON IT. DON'T RuSH ME, BITCH!!
+</p>

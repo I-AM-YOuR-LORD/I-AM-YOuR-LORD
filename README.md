@@ -8,6 +8,5 @@ WORKING ON IT. DON'T RuSH ME, BITCH!!
 <img src="https://file.garden/afOzvZALWB7P0ssM/caligraphic22.png" width="500">
 </p>
 
-<a href="https://dirkuu.lurk.me">
-  <img src="[IMAGE_URL](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL.gif)" alt="Alt Text" width="200">
-</a>
+[![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL.gif)](https://dirkuu.lurk.me)
+

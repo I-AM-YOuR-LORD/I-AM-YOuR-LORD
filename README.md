@@ -10,6 +10,6 @@ WORKING ON IT. DON'T RuSH ME, BITCH!!
 
 <img src="https://file.garden/afOzvZALWB7P0ssM/caligraphic22.png" width="500">
 
-[![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://i-am-your-lord.atabook.org)
-
+[![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://i-am-your-lord.atabook.org) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/HAHAHAHAHAHAHAHAHAHAHAHAH.gif)](https://i-am-your-lord.atabook.org) [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/mamamamama.gif)](https://i-am-your-lord.atabook.org)
+ 
 </p>

@@ -2,4 +2,4 @@
 WORKING ON IT. DON'T RuSH ME, BITCH!!
 </p>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=alamimran613&label=Profile%20views&color=0e75b6&style=flat" alt="alamimran613" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=I-AM-YOuR-LORD&label=Profile%20views&color=0e75b6&style=flat" alt="I-AM-YOuR-LORD" /> </p>

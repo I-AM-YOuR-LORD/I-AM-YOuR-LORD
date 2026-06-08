@@ -7,5 +7,6 @@ WORKING ON IT. DON'T RuSH ME, BITCH!!
 <p align="center"> <img src="https://file.garden/afOzvZALWB7P0ssM/zdsad.png" width="500">
 <img src="https://file.garden/afOzvZALWB7P0ssM/caligraphic22.png" width="500">
 </p>
+
 [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me)
 

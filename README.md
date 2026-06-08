@@ -9,4 +9,6 @@ WORKING ON IT. DON'T RuSH ME, BITCH!!
 
 [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me)
 
+[![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAILDIRK.gif)](https://i-am-your-lord.atabook.org)
+
 </p>

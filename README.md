@@ -10,7 +10,7 @@
 
 </p>
 <p align="center">
-CLICK AN IMAGE BELOW... SEE WHAT EVIL IT BRINGS YOu TO.
+<mark>CLICK AN IMAGE BELOW... SEE WHAT EVIL IT BRINGS YOu TO.</mark>
 </p>
 
 

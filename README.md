@@ -13,7 +13,7 @@
 <mark>CLICK AN IMAGE BELOW... SEE WHAT EVIL IT BRINGS YOu TO.</mark>
 </p>
 
-$${\color{yellow}MEEP MEEP}$$
+$${\color{yellow}MEEP  MEEP}$$
 
 <div align="center">
    

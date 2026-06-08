@@ -13,7 +13,7 @@
 <mark>CLICK AN IMAGE BELOW... SEE WHAT EVIL IT BRINGS YOu TO.</mark>
 </p>
 
-$${\color{yellow}MEEP \space MEEP}$$
+$${\color{yellow}I \space REALLY \space ENJOY \space HAVING \space FRIENDS, \space DON'T \space FEEL \space AFRAID \space TO \space SEND \space A \space DM \space ASKING \space TO \space BE \space FRIENDS. }$$
 
 <div align="center">
    

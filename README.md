@@ -4,7 +4,10 @@ WORKING ON IT. DON'T RuSH ME, BITCH!!
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=I-AM-YOuR-LORD&label=Profile%20views&color=yellow&style=flat" alt="I-AM-YOuR-LORD" /> </p>
 
-<p align="center"> <img src="https://file.garden/afOzvZALWB7P0ssM/zdsad.png" width="500">
+<p align="center"> 
+
+<img src="https://file.garden/afOzvZALWB7P0ssM/zdsad.png" width="500">
+
 <img src="https://file.garden/afOzvZALWB7P0ssM/caligraphic22.png" width="500">
 
 [![Alt Text](https://file.garden/afOzvZALWB7P0ssM/FLAILFLAILFLAIL2.gif)](https://dirkuu.lurk.me)
